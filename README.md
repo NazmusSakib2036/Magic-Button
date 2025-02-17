@@ -1,1 +1,1 @@
-Magic Button: https://ariyan13186576.github.io/Magic-Button/
+Magic Button: https://NazmusSakib2036.github.io/Magic-Button/
